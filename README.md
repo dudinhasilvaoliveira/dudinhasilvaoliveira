@@ -12,4 +12,4 @@ silva.oliveira.maria1503@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/uFS2gobwhrMAAAAd/dog-dog-with-butterfly-on-nose.gif)
+![descriçao do GIf ](https://media.tenor.com/ygGoa2pXI60AAAAd/puppy-high-five.gif)
